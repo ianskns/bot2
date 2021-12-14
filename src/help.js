@@ -178,7 +178,7 @@ const //database
 ║ *NOME: ★彡[卄口尺Uち]彡★  ☔*
 ║ *INSTA: *
 ║ *WPP: wa.me/+5563992896296*
-║ *YOUTUBE: https://bit.ly/3qAjeNz*
+║
 ║
 ║  *"Peita ou respeita 🐊🚩*
 ║  *"kibadores, vão se fuder"*
